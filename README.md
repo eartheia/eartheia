@@ -1,5 +1,5 @@
 ![5fb99a5d1bd51ddf7ad8cda0563a2e3f](https://github.com/user-attachments/assets/ea0d4f66-e792-41b5-9e4f-b25d25486ce8)
-## ignore me
+## ignore me please
 
 <!--
 **eartheia/eartheia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
