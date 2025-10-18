@@ -1,5 +1,4 @@
-
-![94b4f786876ae4b48e4bfb9b7fe06430](https://github.com/user-attachments/assets/7e24d3b4-2883-4dd1-875d-547c6cd49e5a)
+![f5235bf71a0c1a257d3329fc6ed4a3f5](https://github.com/user-attachments/assets/5f6ed547-e643-4552-809a-f26703ba9ee6)
 
 ## ㅤ
 
