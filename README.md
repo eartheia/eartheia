@@ -2,7 +2,7 @@
 ![9399957864d7bf6e969b15cc68e88dbb](https://github.com/user-attachments/assets/6485a2cc-3293-41b7-a90c-bcab33d6f7bf)
 
 
-## ㅤ
+## ≽(•⩊ •マ≼
 
 <!--
 **eartheia/eartheia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
