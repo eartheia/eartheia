@@ -1,12 +1,13 @@
 
-<img width="735" height="549" alt="無題213_20251028105853" src="https://github.com/user-attachments/assets/e02d6a8d-015e-44df-97d9-5ea3a962e5a9" />
+![0034469b60bb7340efd081c92ebd4abf](https://github.com/user-attachments/assets/a76b4d36-8186-483d-95a9-fb1ddf801c05)
 
 
 
 
 
 
-## ≽(•⩊ •マ≼
+
+## ✧
 
 <!--
 **eartheia/eartheia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
