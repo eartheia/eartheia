@@ -7,7 +7,8 @@
 
 ㅤㅤㅤㅤ  ㅤ{dont walk towards me pls.}
 
-<img width="360" height="789" alt="Planesystem" src="https://github.com/user-attachments/assets/4cf77a07-6c8f-4e07-8527-b571d6f180d8" />
+<img width="748" height="1024" alt="無題422_20260520152000" src="https://github.com/user-attachments/assets/a4a88202-a21c-4504-8f40-6f2927183c88" />
+
 
 
 
