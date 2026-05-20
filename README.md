@@ -12,7 +12,7 @@
 
 
 
-{pfp and art by frowny_brownie on pin+twitter!!^_^}
+{pfp and art by frowny_brownie on pin+twitter!!>o<}
 
 
 
