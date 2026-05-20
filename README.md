@@ -1,12 +1,4 @@
-vote airy to be the president guys!!!1!1!!1🦅🦅🦅america
-<img width="736" height="414" alt="1000045471" src="https://github.com/user-attachments/assets/cc651776-3574-4fb5-8f44-247ce5451b89" />
-
-ㅤㅤㅤㅤㅤ — ☆ — ☆ — ☆ — ☆ — ☆ —
-
-ㅤㅤㅤ Airy and fanmade theia kinnie..
-ㅤㅤㅤㅤㅤㅤim an airy yumeshipper btw
-
-dnc/inspo my skins please!! and dniuf! whisper if u still want to interact w me^_^ {dont walk towards me pls.} 
+<img width="640" height="740" alt="1000045477" src="https://github.com/user-attachments/assets/0288fb78-3599-4ef7-9496-1934dc792ec2" />
 
 
 
