@@ -12,7 +12,7 @@
 
 
 
-{airy eating burg art by frowny_brownie on pin+twitter!!>o< ignore the reality of my readme}
+{airy eating burg art by frowny_brownie on pin+twitter!!>o< pretend that everything is neat and nice}
 
 
 
