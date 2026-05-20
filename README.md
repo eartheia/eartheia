@@ -5,7 +5,10 @@
 ㅤㅤㅤdnc/inspo my skins please!! and dniuf!
 ㅤㅤㅤㅤㅤ   ㅤwhisper if u still want to interact w me^_^ 
 
-ㅤㅤㅤㅤ  ㅤ{dont walk towards me pls.} 
+ㅤㅤㅤㅤ  ㅤ{dont walk towards me pls.}
+
+<img width="360" height="789" alt="Planesystem" src="https://github.com/user-attachments/assets/4cf77a07-6c8f-4e07-8527-b571d6f180d8" />
+
 
 
 
