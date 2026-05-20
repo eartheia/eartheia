@@ -1,5 +1,4 @@
-
-<img width="736" height="414" alt="無題294_20260101201037" src="https://github.com/user-attachments/assets/6c5d3314-1b46-4c85-b924-45581a21ddd1" />
+<img width="370" height="320" alt="1000045466" src="https://github.com/user-attachments/assets/6d672bd4-af69-43e3-b670-514cc2857f62" />
 
 
 
