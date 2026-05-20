@@ -3,7 +3,8 @@ vote airy to be the president guys!!!1!1!!1🦅🦅🦅america
 
 ㅤㅤㅤㅤㅤ — ☆ — ☆ — ☆ — ☆ — ☆ —
 
-Airy and fanmade theia kinnie.. im an airy yumeshipper<33
+ㅤㅤㅤ Airy and fanmade theia kinnie..
+ㅤㅤㅤㅤ  im an airy yumeshipper<33
 
 dnc/inspo my skins please!! and dniuf! whisper if u still want to interact w me^_^ {dont walk towards me pls.} 
 
