@@ -9,7 +9,8 @@
 
 <img width="748" height="1024" alt="無題422_20260520152000" src="https://github.com/user-attachments/assets/a4a88202-a21c-4504-8f40-6f2927183c88" />
 
-{pfp and art by frowny_brownie on pin!^_^}
+
+{pfp and art by frowny_brownie on pin!^_^ go check them outt they drew airy so cutee,,,}
 
 
 
