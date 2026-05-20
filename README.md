@@ -11,7 +11,7 @@
 
 
 
-{pfp and art by frowny_brownie on pin+twitter!^_^ go check them outt they drew airy so cutee,,,}
+{pfp and art by frowny_brownie on pin+twitter!!^_^}
 
 
 
