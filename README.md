@@ -3,7 +3,8 @@
 <img width="640" height="740" alt="1000045477" src="https://github.com/user-attachments/assets/0288fb78-3599-4ef7-9496-1934dc792ec2" />
 
 ㅤㅤㅤdnc/inspo my skins please!! and dniuf!
-ㅤㅤㅤwhisper if u still want to interact w me^_^          {dont walk towards me pls.} 
+ㅤㅤㅤㅤㅤwhisper if u still want to interact w me^_^ 
+{dont walk towards me pls.} 
 
 
 
