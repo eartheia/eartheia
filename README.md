@@ -1,4 +1,4 @@
-<img width="736" height="414" alt="1000045471" src="https://github.com/user-attachments/assets/cc651776-3574-4fb5-8f44-247ce5451b89" />
+<img width="736" height="414" alt="1000045471" src="https://github.com/user-attachments/assets/cc651776-3574-4fb5-8f44-247ce5451b89" /> vote airy to be the president guys!!!1!1!!1🦅🦅🦅america
 
 
 
