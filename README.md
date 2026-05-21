@@ -14,7 +14,6 @@
 
 {airy eating burger art by frowny_brownie on pin+twitter!!>o< pretend that everything looks neat and nice}
 
-<img width="3000" height="2000" alt="無題423_20260521200419" src="https://github.com/user-attachments/assets/d8c9d2aa-9084-4d3f-990d-c96c4298bd7d" />
 
 
 
@@ -26,8 +25,7 @@
 
 
 
-
-## ㅤ
+ㅤ
 
 <!--
 **eartheia/eartheia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
