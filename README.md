@@ -6,7 +6,7 @@
 ㅤㅤㅤdnc/inspo my skins please!! and dniuf!
 ㅤㅤㅤㅤㅤ   ㅤwhisp if u still want 2 interact w me^_^ 
 
-  {please dont walk towards me 2 interact! thank u.}
+ㅤㅤ{please dont walk towards me 2 interact! thank u.}
 
 <img width="748" height="1024" alt="無題422_20260520152000" src="https://github.com/user-attachments/assets/a4a88202-a21c-4504-8f40-6f2927183c88" />
 
