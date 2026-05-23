@@ -14,7 +14,8 @@
 
 {airy eating burger art by frowny_brownie on pin+twitter!!>o< pretend that everything looks neat and nice}
 
-<img width="3040" height="1639" alt="無題435" src="https://github.com/user-attachments/assets/204a4330-23c8-47f6-a7b3-de33fbba3f65" />
+<img width="3040" height="1665" alt="無題435 (1)" src="https://github.com/user-attachments/assets/642e860b-e024-4af2-97eb-7029d4665fbd" />
+
 
 
 ㅤㅤㅤdas it,, ty 4 reading & understanding!! <33
