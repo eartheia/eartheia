@@ -16,7 +16,8 @@
 
 <img width="3040" height="1644" alt="無題435_20260523130322" src="https://github.com/user-attachments/assets/aed3e5d5-dd23-4f86-b58a-660198cd6d4f" />
 
-das it,, ty 4 reading & understanding!! <33
+
+ㅤㅤㅤㅤdas it,, ty 4 reading & understanding!! <33
 {art by me. ignore it}
 
 
