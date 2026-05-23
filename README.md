@@ -18,7 +18,7 @@
 
 
 ㅤㅤㅤdas it,, ty 4 reading & understanding!! <33
-ㅤㅤㅤㅤㅤㅤ{art by me. ignore it}
+ㅤㅤㅤㅤㅤㅤㅤㅤ{art by me. ignore it}
 
 
 
