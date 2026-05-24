@@ -19,7 +19,7 @@
 
 
 ㅤㅤㅤdas it,, ty 4 reading & understanding!! <33
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ{my drawing lmaoo ignore it}
+ㅤㅤㅤㅤㅤㅤㅤ{my drawing lmaoo ignore it}
 
 
 
