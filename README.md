@@ -20,7 +20,7 @@ https://github.com/user-attachments/assets/cc2bb6b9-cf63-4964-866a-83f6f67448ba
 
 
 ㅤㅤㅤdas it,, ty 4 reading & understanding!! <33ㅤ
-{airy eating burger art by frowny_brownie on pin+twitter!!>o< the small airys is my art lmaoo ignore it. pretend that everything looks neat and nice,, still duno how this works and how 2 make it look pretty}
+{airy eating burger art by frowny_brownie on pin+twitter!!>o< the small airys is my art lmaoo ignore it.}ㅤㅤㅤㅤㅤㅤㅤㅤ {pretend that everything looks neat and nice,, still duno how this works and how 2 make it look pretty}
 
 
 
