@@ -10,14 +10,10 @@
 
 <img width="748" height="1024" alt="無題422_20260520152000" src="https://github.com/user-attachments/assets/a4a88202-a21c-4504-8f40-6f2927183c88" />
 
-
-
-{airy eating burger art by frowny_brownie on pin+twitter!!>o< pretend that everything looks neat and nice,, still duno how this works and how 2 make it look pretty}
-
 https://github.com/user-attachments/assets/cc2bb6b9-cf63-4964-866a-83f6f67448ba
 
 ㅤㅤㅤdas it,, ty 4 reading & understanding!! <33
-ㅤㅤㅤㅤㅤㅤㅤ{small airys is my art lmaoo ignore it}
+{airy eating burger art by frowny_brownie on pin+twitter!!>o< the small airys is my art lmaoo ignore it. pretend that everything looks neat and nice,, still duno how this works and how 2 make it look pretty}
 
 <img width="3040" height="1665" alt="無題435 (1)" src="https://github.com/user-attachments/assets/642e860b-e024-4af2-97eb-7029d4665fbd" />
 
