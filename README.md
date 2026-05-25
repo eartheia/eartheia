@@ -14,7 +14,9 @@
 
 {airy eating burger art by frowny_brownie on pin+twitter!!>o< pretend that everything looks neat and nice,, still duno how this works and how 2 make it look pretty}
 
+— — — — — — — — — — — — — — — — — — — — — — —
 https://github.com/user-attachments/assets/cc2bb6b9-cf63-4964-866a-83f6f67448ba
+— — — — — — — — — — — — — — — — — — — — — — —
 
 ㅤㅤㅤdas it,, ty 4 reading & understanding!! <33
 ㅤㅤㅤㅤㅤㅤㅤ{small airys is my art lmaoo ignore it}
