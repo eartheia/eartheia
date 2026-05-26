@@ -8,7 +8,8 @@
 
 {please dont walk towards me 2 interact! thank u.<3}
 
-<img width="3040" height="1244" alt="無題437_20260526110358" src="https://github.com/user-attachments/assets/9fc2b656-2d0b-4fba-8c38-3cdc98a65fba" />
+<img width="3040" height="1244" alt="無題437" src="https://github.com/user-attachments/assets/85584b62-097b-402f-a4bd-19dad2687559" />
+
 
 
 https://github.com/user-attachments/assets/cc2bb6b9-cf63-4964-866a-83f6f67448ba
