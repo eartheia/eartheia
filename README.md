@@ -8,22 +8,10 @@
 
 {please dont walk towards me 2 interact! thank u.<3}
 
-<img width="748" height="1024" alt="無題422_20260520152000" src="https://github.com/user-attachments/assets/a4a88202-a21c-4504-8f40-6f2927183c88" />
+<img width="3040" height="1244" alt="無題437_20260526110358" src="https://github.com/user-attachments/assets/9fc2b656-2d0b-4fba-8c38-3cdc98a65fba" />
+
 
 https://github.com/user-attachments/assets/cc2bb6b9-cf63-4964-866a-83f6f67448ba
-
-
-
-
-
-
-ㅤㅤairy eating burger art by frowny_brownie on ㅤㅤㅤㅤㅤㅤㅤㅤpinterest & twitter !!>o<
-
-
-<img width="3040" height="1665" alt="無題435 (1)" src="https://github.com/user-attachments/assets/642e860b-e024-4af2-97eb-7029d4665fbd" />
-
-
-{my art lmaoo ignore it. pretend that everything looks neat and nice,, still duno how this works and how 2 make it look pretty sou,,, go easy on me pls}
 
 
 
